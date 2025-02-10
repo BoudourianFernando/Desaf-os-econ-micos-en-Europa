@@ -1,2 +1,2 @@
-# Desaf-os-econ-micos-en-Europa
+# Desafíos-económicos-en-Europa
 El impacto de la guerra en Ucrania afectó la estabilidad energética y alimentaria en Europa. La UE respondió con medidas estratégicas para reducir la dependencia de Rusia, fomentar energías renovables y garantizar el comercio de productos esenciales. Se promovieron regulaciones para limitar el alza de precios y proteger a los consumidores. Aunque los desafíos persisten, las estrategias adoptadas han sido claves para la recuperación.
